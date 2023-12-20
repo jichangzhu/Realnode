@@ -1,5 +1,5 @@
 # Realnode加速器官网地址
-Realnode加速器最新官网地址：[Realnode加速器官网地址](https://c.jichangzhu.com/goto/realnode/)
+最新官网地址：[Realnode加速器官网](https://c.jichangzhu.com/goto/realnode/)
 
 ## Realnode加速器怎么样？
 
